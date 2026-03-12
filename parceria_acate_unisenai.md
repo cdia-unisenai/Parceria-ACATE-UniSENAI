@@ -23,8 +23,7 @@
 
   Cada dia letivo será uma evidência do sucesso continuado dessa parceria.
 
-
-  Com este desejo, oficializamos a união entre o ecossistema vibrante da ACATE e a visão de futuro do UniSENAI e do sistema FIESC.
+  Com este desejo, celebramos a união entre o ecossistema vibrante da ACATE e a visão de futuro de todo o sistema FIESC.
 
 ---
 </div>
